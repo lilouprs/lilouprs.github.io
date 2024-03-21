@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning in a french system
 - 💞️ I love pandas and chouquettes
 - 📫 How to reach me : DON'T REACH ME !!!
-- 😄 Pronouns: Bad B***h
+- 😄 Pronouns: GURLLLLLLLLL 💅
 - ⚡ Fun fact: I love my besties Eva and Maëlle (aka Evouch and Malou)
